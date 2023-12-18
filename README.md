@@ -2,4 +2,4 @@
 - 👀 I’m interested in Software Developmenmt.
 - 🌱 I have completed my B.E. in Information Technology from St. John College of Engineering and Management.
 - 💞️ I’m looking to collaborate on any open source projects.
-- 📫 How to reach me https://www.linkedin.com/in/akash-harad-2054a8215/
+- 📫 How to reach me https://www.linkedin.com/in/akashharad99/
